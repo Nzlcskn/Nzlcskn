@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am psychology student. <br>My email adress is nazcskun9@gmail.com
+<br>My email adress is nazcskun9@gmail.com
 
 
 ## 🌐 Socials:
